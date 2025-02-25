@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Sahil
-- 🥇 i Good at : Python , web front end dev ,
+- 🥇 i Good at : Python , web dev ,
 - 💞️ I’m looking for dev also mods /staff also we planning to do crazy stuff join us from discord.
 - 📫 How to reach me : discord : https://discord.gg/SbgrjGsXfS
 - 
